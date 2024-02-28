@@ -6,7 +6,7 @@
 - 😄 Pronouns: nice
 - ⚡ Fun fact:lol
 
-- and more
+- and more more
 
 <!---
 kubasovdu/kubasovdu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
