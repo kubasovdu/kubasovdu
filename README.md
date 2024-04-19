@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on top
 - 📫 How to reach me mani
 - 😄 Pronouns: nice
-- ⚡ Fun fact:lol++
+- ⚡ Fun fact:
 
 - and more more more
 
