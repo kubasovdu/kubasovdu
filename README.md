@@ -21,3 +21,4 @@ tyre
 typo
 hhihh
 hopoi
+type
