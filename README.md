@@ -1,3 +1,2 @@
 kubas
-gn1
 
